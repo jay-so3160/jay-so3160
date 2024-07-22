@@ -8,7 +8,7 @@
 
 - 📫 How to reach me: You can contact me via LinkedIn at [Adriana Jacqueline Soto Cruz](www.linkedin.com/in/adriana-jacqueline-soto-cruz-61157b314).
 
-- 😄 Pronouns: She/Her
+- 😄 Pronouns: She/They
 
 - ⚡ Fun fact: I have a keen interest in forensic psychology and enjoy reading about criminal profiling and the psychological aspects of criminal behavior. When I have time, I volunteer with organizations dedicated to empowering women in STEM fields.
 
